@@ -1,0 +1,1 @@
+Terms of Service. This app is a personal tool that creates short educational history videos with AI and posts them to the owner's own TikTok account after manual review. It is not offered to the public and has no other users. All videos are labeled as AI-generated. Contact: d.schmidtke2006@gmail.com
