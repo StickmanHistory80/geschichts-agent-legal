@@ -1,0 +1,1 @@
+Privacy Policy. This app is a personal tool and does not collect, store, or share personal data of any other people. It connects only to the owner's own TikTok account to upload videos created by the owner. No data is sold or passed on to third parties. Contact:d.schmidtke2006@gmail.com
